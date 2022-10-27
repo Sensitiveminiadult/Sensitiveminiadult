@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Sensitiveminiadult
+- 📫 msgoguadzetamar@gmail.com
